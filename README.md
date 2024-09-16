@@ -1,1 +1,1 @@
-# Corrupcao
+ A corrupção em Laranjeiras do Sul, como em muitas outras cidades, pode envolver práticas como desvios de recursos públicos e favorecimento em contratos. A solução ideal é criar mecanismos robustos de transparência, como auditorias independentes e um sistema de denúncias anônimo, além de promover a educação cívica para que os cidadãos possam participar ativamente da fiscalização e exigir responsabilidade dos gestores públicos.
